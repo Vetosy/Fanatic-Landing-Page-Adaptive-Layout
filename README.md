@@ -1,0 +1,1 @@
+# Vetosy-Fanatic-Landing-Page-Adaptive-Layout
